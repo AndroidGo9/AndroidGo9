@@ -1,8 +1,11 @@
 ### Hi there 👋
-
+AndroidGo9です
+自作PCともぺもぺとLinuxが主食
+男の娘やショタ、ロリが好きな変態です
+プログラムチョットカケル
 
 ## Contact
-<a href="https://twitter.com/AndroidGo9?ref_src=twsrc%5Etfw" class="twitter-follow-button" data-show-count="false">Follow @AndroidGo9</a><script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+[Twitter](https://twitter.com/AndroidGo9)
 
 <!--
 **AndroidGo9/AndroidGo9** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
