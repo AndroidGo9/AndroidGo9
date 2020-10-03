@@ -1,7 +1,10 @@
 ### Hi there 👋
 AndroidGo9です
+
 自作PCともぺもぺとLinuxが主食
+
 男の娘やショタ、ロリが好きな変態です
+
 プログラムチョットカケル
 
 ## Contact
