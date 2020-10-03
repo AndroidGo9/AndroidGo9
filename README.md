@@ -7,7 +7,7 @@ AndroidGo9です
 
 プログラムチョットカケル
 
-## Contact
+## 用がある場合はこ↑こ↓
 [Twitter](https://twitter.com/AndroidGo9)
 
 <!--
