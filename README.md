@@ -16,7 +16,7 @@ AndroidGo9です
 
 
 アイコン by
-https://picrew.me/share?cd=YL5ewP7jID
+https://picrew.me/image_maker/488885
 (ありがとうございます!)
 ## 用がある場合はこ↑こ↓
 [Twitter](https://twitter.com/AndroidGo9)
