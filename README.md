@@ -13,6 +13,11 @@ AndroidGo9です
 もし、自分の名前を名乗って違法行為を行なっているユーザーがいる場合、それはコンピューターウイルスです。
 
 恐れ入りますが、削除や凍結の処置をお願いします。
+
+
+アイコン by
+https://picrew.me/share?cd=YL5ewP7jID
+(ありがとうございます!)
 ## 用がある場合はこ↑こ↓
 [Twitter](https://twitter.com/AndroidGo9)
 
