@@ -1,12 +1,7 @@
 ### Hi there 👋
 AndroidGo9です
 
-自作PCともぺもぺとLinuxが主食
-
 男の娘やショタ、ロリなど色々好きな変態
-
-### 注意
-質問箱、回答がかなり遅めです。
 
 アイコン by
 https://picrew.me/image_maker/488885
