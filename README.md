@@ -3,10 +3,9 @@ AndroidGo9です
 
 男の娘やショタ、ロリなど色々好きな変態
 
-アイコン by
-https://picrew.me/image_maker/488885
-(ありがとうございます!)
-## 用がある場合はこ↑こ↓
+アイコン by どっかのWeb広告
+## 連絡先
+権利を侵害しているコンテンツがある場合、削除を希望される場合はTwitterにて連絡をお願いします。
 [Twitter](https://twitter.com/AndroidGo9)
 
 <!--
